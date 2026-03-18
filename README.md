@@ -19,8 +19,6 @@
     <p> 
   
   `anti-social, probably audhd, mentally 6 years old`
-
-  `sleeps a lot(?)`
     
    </p>
    </details>
