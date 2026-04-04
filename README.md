@@ -1,7 +1,7 @@
 <div align="center">
 <img width="1250" height="74" alt="Untitled2425-20230708184656" src="https://github.com/user-attachments/assets/3557105f-ed0b-4fe0-93c9-2c691cd9e373" />
   
-### [ SOMEWHERE IN HELL ]
+### [ SOLIS LAUNCH PAD ]
 ![Profile views](https://komarev.com/ghpvc/?username=N0L1H0L1C&color=%236f00af)
 
 ![tumblr_3237e115f1a71f8256ea531931f091ba_be1cf635_400](https://github.com/user-attachments/assets/35f217b4-2e69-4bd6-8ac3-1a77312ae419)
