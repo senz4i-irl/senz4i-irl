@@ -10,7 +10,7 @@
 
 <img width="625" height="30" alt="5e0c488c" src="https://github.com/user-attachments/assets/ff5e2f82-ea18-4ab0-8e9f-fb0a3310a372" />
 
-`call me rai or r as you'd like.`
+`call me rai or jack. either is fine.`
 
 `prns: he/him, genderfluid.`
 
@@ -24,6 +24,8 @@
    </details>
 
 ![tumblr_bb86c5d96eb94a386242a35914339528_97893876_400](https://github.com/user-attachments/assets/6eba6058-6daa-4f61-9158-f4ee7c493fc1)
+
+`IMPORTANT INFO!!`
 
   <details>
     <summary>before you interact!</summary>
