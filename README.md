@@ -1,16 +1,16 @@
 <div align="center">
 <img width="1250" height="74" alt="Untitled2425-20230708184656" src="https://github.com/user-attachments/assets/3557105f-ed0b-4fe0-93c9-2c691cd9e373" />
   
-### [ SOLIS LAUNCH PAD ]
+### [ JIGOKU ]
 ![Profile views](https://komarev.com/ghpvc/?username=N0L1H0L1C&color=%236f00af)
 
-![tumblr_3237e115f1a71f8256ea531931f091ba_be1cf635_400](https://github.com/user-attachments/assets/35f217b4-2e69-4bd6-8ac3-1a77312ae419)
+<img width="500" height="325" alt="a" src="https://github.com/user-attachments/assets/2e0c1f50-8fd1-441a-91c4-b9398d6a3ad5" />
 
 ![7314](https://github.com/user-attachments/assets/fec9fc5b-f561-4b10-a8e4-dcc1b0b0eff6)
 
 <img width="625" height="30" alt="5e0c488c" src="https://github.com/user-attachments/assets/ff5e2f82-ea18-4ab0-8e9f-fb0a3310a372" />
 
-`call me rai or jack. either is fine.`
+`call me sin or sen. either is fine.`
 
 `prns: he/him, genderfluid.`
 
@@ -27,13 +27,14 @@
 
 `IMPORTANT INFO!!`
 
+`i have touch trigger ingame, please do not make this mistake.`
   <details>
     <summary>before you interact!</summary>
     <p>
 
   `i mainly int w fandoms i know, would yap a lot tho`
 
-  `i have touch trigger ingame, please do not make this mistake.`
+  `if no respond= busy/ignoring on purpose`
       
   </p>
   </details>
