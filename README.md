@@ -13,10 +13,40 @@
 
 `prns: he/him, genderfluid.`
 
+<details>
+   <summary>extra info!</summary> 
+    <p> 
+  
+  `anti-social, probably audhd, mentally 6 years old`
+    
+   </p>
+   </details>
+
 ![tumblr_bb86c5d96eb94a386242a35914339528_97893876_400](https://github.com/user-attachments/assets/6eba6058-6daa-4f61-9158-f4ee7c493fc1)
 
-`more info in alt ( @warlockinfinite )`
+`IMPORTANT INFO!!`
 
-![e4a5605220a546fbbbf593ce576fd153b1339f78](https://github.com/user-attachments/assets/7473ef47-c89c-4178-9bb1-3d8ee43b8fed)
+`i WILL block you if you dont respect me at all.`
+  <details>
+    <summary>before you interact!</summary>
+    <p>
+
+  `i mainly int w fandoms i know, would yap a lot tho`
+
+  `if no respond= busy/ignoring on purpose`
+      
+  </p>
+  </details>
+
+  <details>
+    <summary>do not interact if...</summary>
+    <p>
+      
+  `basic dni crit, attention seekers, kids under 14, shit fandoms.`
+      
+  `i wont say what r the shit fandoms, you know them yourself.`
+    
+  </p>
+  </details>
 
 <img width="1250" height="74" alt="Untitled2425-20230708184658" src="https://github.com/user-attachments/assets/e98643f9-4d25-46e7-93f8-9559e5e244ae" />
